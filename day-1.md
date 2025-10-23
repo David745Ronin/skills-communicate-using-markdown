@@ -1,5 +1,5 @@
 # Daily Learning
 
-## Norning Planning
+## Morning Planning
 
 ## Review
